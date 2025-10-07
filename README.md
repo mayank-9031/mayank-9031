@@ -18,7 +18,6 @@
 
 - 📄 Know about my experiences [https://flowcv.com/resume/1j568mhms6](https://flowcv.com/resume/1j568mhms6)
 
-- ⚡ Fun fact **I think I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
